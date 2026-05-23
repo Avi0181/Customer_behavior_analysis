@@ -50,7 +50,6 @@ Optimize discount-heavy products to improve margins.
 Increase focus on young adult customer acquisition.
 Promote premium express shipping options.
 Highlight top-rated products in marketing campaigns.
-Dashboard Preview
 
 
 Author
